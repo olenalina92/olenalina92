@@ -5,7 +5,6 @@ acsa- 👋 Hi, I’m @olenalina92
 - 📫 How to reach me ...
 
 <!---
-olenalina92/olenalina92 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Prevhhliew link to tazxzke a look at your changes.
+dasdasdasdYou can click the Prevhhliew link to tazxzke a look at your changes.
 --->
 n nmc
