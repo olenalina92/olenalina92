@@ -1,9 +1,7 @@
 jjlkklacsa- 👋 Hi, I’m @olenalina92
-- 👀 I’m interested in ...v
-- 🌱 I’m fdg on ...dsdavcx
+- 👀 I’m integdf
 - 📫 How to reach me fg...c
-asdsad321rrqwvhfg
-<!---a
+asdsad321rrqwvhcxv<!---a
 dasdasdasdYou can chfglick the Prevhhliew link to tazxzke a look at your changes.
 --->ascvzxc
 n nmczxc
