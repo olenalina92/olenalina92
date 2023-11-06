@@ -2,7 +2,7 @@
 - 👀 I’m integdfasdcvxcvxcvячсячvcbasdadcxvfvxccxzczx
 - 📫 How to reach me gdffgа...ccasdaxvdkjhssвфівсooчяd
 asdsad321rrqwvhcxv<!---hkgjasdasdcxzvzadsaвапasxzxzczxczxczxczxccxaвіфвіфвфіsdasdczcxzbcvbcvаіваіваіваsacxzccxфівфвіф
-dasdasdasdYou can chfglick the cxррпосячсzcxczxPrevhhxcvlivxccxsadsavvxcvw link to tazxzke a look at yячсчour changes.asdasd
+dasdasdasdYou can chfglick the daszxccxррпосячсzcxczxPrevhhxcvlivxccxsadsavvxcvw link to tazxzke a look at yячсчour changes.asdasd
 --->ascvzxc
 n nmczxcdsadasdasd
 vcasd
